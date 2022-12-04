@@ -1,1 +1,1 @@
-Péssimo consultor amoroso e lazarento nas horas vagas.
+Lazarento nas horas vagas.
